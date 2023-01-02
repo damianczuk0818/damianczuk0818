@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @damianczuk0818
+- 👀 I’m enjoying  games & pc graphic
+- 🌱 I’m currently learning JS/PHP/Photoshop
+- 📫 How to reach me? send me message at damian.lauk67@gmail.com 
